@@ -1,7 +1,15 @@
-<img width="1000" height="46" alt="image" src="https://github.com/user-attachments/assets/0c15b850-7d55-4d45-8d6e-d8bf269bfd2e" />
-			ㅤㅤ	ㅤ	ㅤ	ㅤ	ㅤ	ㅤ	ㅤ	ㅤ	     MACE ATTACK
-<img width="1440" height="122" alt="tumblr_230437790c80ae2cb4f3865e29f59b66_167a05ad_2048" src="https://github.com/user-attachments/assets/3321256c-f38e-45f6-9f8f-671350833f9b" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	
-<img width="368" height="273" alt="image" src="https://github.com/user-attachments/assets/bcda3534-a032-48a5-a335-513fd3fdc4ad" /> ㅤㅤㅤㅤ<img width="100" height="60" alt="vp7rfGzxIsEeUxrVms" src="https://github.com/user-attachments/assets/093cfca2-c706-4c42-94ee-780e5db942f5" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤawkward in social settings . nicknames are appreciated ;-3
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	ㅤㅤㅤ	ㅤㅤㅤ	ㅤㅤㅤ	ㅤㅤㅤ	ㅤㅤㅤ	ㅤㅤ	ㅤㅤㅤ**strictly** she / her __or__ any prns is ok .		
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ	ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc*h whenever ;-]
+
+
+<img align="left" img width="300" height="250" alt="image" src="https://github.com/user-attachments/assets/cff0470c-6f1e-4754-a203-8636aa80c047" /> ㅤ" $\text{\color{#ebe4b3} your}$ $\text{\color{#e1c99f} sweet}$ $\text{\color{#d7aa8c} eyes}$ $\text{\color{#cd887a} your}$ $\text{\color{#c3696e} little}$ $\text{\color{#b95975} smile}$ $\text{\color{#af4a7f} is}$ $\text{\color{#b95975} all}$ $\text{\color{#c3696e} i}$ $\text{\color{#cd887a} can}$ $\text{\color{#d7aa8c} remember}$ "
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=ivansaxe&color=e5e5ff&label=party+killers)
+
+
+ㅤㅤ " $\text{\color{#efb0b2} those}$ $\text{\color{#d99dab} fuzzy}$ $\text{\color{#c38aa2} memories}$ $\text{\color{#ac7898} mess}$ $\text{\color{#96678d} with}$ $\text{\color{#805680} my}$ $\text{\color{#62456a} temper}$  "
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jeazo4iwhxiwdkzdaazmyspt6q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=776e96&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+<p align="center">
+<img width="800" height="240" alt="image" src="https://github.com/user-attachments/assets/7519e223-7d36-4146-9c6d-01bc5b59f954" />
+</p>
