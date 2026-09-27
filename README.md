@@ -1,6 +1,6 @@
 
 
-<img align="left" img width="300" height="250" alt="image" src="https://i.ibb.co/ZzGtBPKj/Untitled77-20260820173052.png" /> ㅤ" $\text{\color{#ebe4b3} your}$ $\text{\color{#e1c99f} sweet}$ $\text{\color{#d7aa8c} eyes}$ $\text{\color{#cd887a} your}$ $\text{\color{#c3696e} little}$ $\text{\color{#b95975} smile}$ $\text{\color{#af4a7f} is}$ $\text{\color{#b95975} all}$ $\text{\color{#c3696e} i}$ $\text{\color{#cd887a} can}$ $\text{\color{#d7aa8c} remember}$ "
+<img align="left" img width="300" height="250" alt="image" src="https://i.ibb.co/ZzGtBPKj/Untitled77-20260820173052.png" /> ㅤ" $\text{\color{#ebe4b3} your}$ $\text{\color{#e1c99f} sweet}$ $\text{\color{#d7aa8c} little}$ $\text{\color{#cd887a} eyes}$ $\text{\color{#c3696e} your}$ $\text{\color{#b95975} little}$ $\text{\color{#af4a7f} smile}$ $\text{\color{#b95975} is}$ $\text{\color{#c3696e} all}$ $\text{\color{#cd887a} i}$ $\text{\color{#d7aa8c} can}$ $\text{\color{#cd887a} remember}$ "
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=ivansaxe&color=e5e5ff&label=party+killers)
